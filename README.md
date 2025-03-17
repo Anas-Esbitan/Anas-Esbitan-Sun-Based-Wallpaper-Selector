@@ -1,1 +1,1 @@
-# Anas-Esbitan-Sun-Based-Wallpaper-Selector
+# Sun-Based-Wallpaper-Selector
